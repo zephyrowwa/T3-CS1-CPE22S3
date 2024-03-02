@@ -3,4 +3,8 @@ colab link: https://colab.research.google.com/drive/1PBfkG80oqHcIePpRBh6bUJVcqIA
 canva/presentaion link : https://www.canva.com/design/DAF9-59Cq64/rOfBcxNVQPb_-pkbdw6uBQ/edit
 
 
-© BELOC X CALAM X MONTO
+BELOCORA
+
+CALAMBA
+
+MONTOJO
